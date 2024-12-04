@@ -1,0 +1,1 @@
+Daily insights on AI developments for small business owners. Updated daily with practical, actionable information.
